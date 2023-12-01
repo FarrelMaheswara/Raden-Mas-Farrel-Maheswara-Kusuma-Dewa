@@ -1,4 +1,4 @@
-# Raden-Mas-Farrel-Maheswara-Kusuma-Dewa Latex Aplikom
+# Raden Mas Farrel Maheswara Kusuma Dewa Tugas Akhir Latex Aplikom
 
 **Halooo Selamat Datang**
 
